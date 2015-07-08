@@ -1,2 +1,2 @@
-# derekshirk.github.io.
+# derekshirk.github.io
 GitHub User Page
